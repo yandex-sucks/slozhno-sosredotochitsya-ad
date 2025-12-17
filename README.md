@@ -1,0 +1,1 @@
+https://github.com/yandex-sucks/slozhno-sosredotochitsya-ad
